@@ -14,7 +14,7 @@
 备注：个人在用，速度杠杠的
 
 ## EFCloud
-注册链接：[https://www.efcloud.vip/#/register?code=qVvIlo5d](https://t.cn/A6RCiMyZ)
+注册链接：[https://t.cn/A6RCiMyZ](https://www.efcloud.vip/#/register?code=qVvIlo5d) 
 
 推广提成比例：20%
 
@@ -25,7 +25,7 @@
 备注：办过年费，年费最划算，200GB流量年费100，新人8折优惠后才80，跟100GB的价格一样（100GB的年费也是80，不能用新人8折优惠）
 
 ## 泡泡Dog
-注册链接：[https://www.paopaogou002.cloud/#/register?code=d99lSmsb](https://t.cn/A6RCiQdm)
+注册链接：[https://t.cn/A6RCiQdm](https://www.paopaogou002.cloud/#/register?code=d99lSmsb)
 
 推广提成比例：20%
 
@@ -36,7 +36,7 @@
 备注：年费最划算，98/年，比上面的稍微贵10来块，不过我看了，设备数量没有限制。
 
 ## FCCloud
-注册链接：[https://www.fccloud2.com/#/register?code=lTk1dzE4](https://t.cn/A6RC6LmO)  
+注册链接：[https://t.cn/A6RC6LmO](https://www.fccloud2.com/#/register?code=lTk1dzE4)
 
 推广提成比例：20%
 
