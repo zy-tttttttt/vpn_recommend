@@ -3,7 +3,7 @@
 # 2024年便宜好用机场推荐评测(长期更新 欢迎推荐！！！)
 
 ## ssone
-注册链接： [https://hello36d.com/register?aff=67rha92Z](https://t.cn/A6RCiLWl)
+注册链接： [https://t.cn/A6RCiLWl](https://hello36d.com/register?aff=67rha92Z)
 
 推广提成比例：20%
 
