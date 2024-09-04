@@ -1,6 +1,6 @@
 # vpn_recommend
 # 2024最新翻墙软件VPN推荐（性价比，收藏）
-# 2024年便宜好用机场推荐评测(长期更新 欢迎推荐！！！)
+# 2024年便宜好用机场推荐(长期更新 收藏)
 
 ## ssone
 注册链接： [https://t.cn/A6RCiLWl](https://hello36d.com/register?aff=67rha92Z)
